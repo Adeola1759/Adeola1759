@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Adeola1759
+- 👀 I’m interested in using technology to support education and research.
+- 💞️ I’m looking to collaborate on building a product on Arweave to support education and research.
+- 📫 How to reach me: oladipupoadeola194@gmail.com
